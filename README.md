@@ -1,3 +1,2 @@
 # tayeb
-الطالب ديزاد
-https://etalibdz.blogspot.com/
+<a href="https://www.blogspot.com/" rel="nofollow"> الطالب ديزاد </a>
