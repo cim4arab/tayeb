@@ -1,2 +1,2 @@
 # tayeb
-<a href="https://www.blogspot.com/" rel="nofollow"> الطالب ديزاد </a>
+<a href="https://etalibdz.blogspot.com/" rel="dofollow"> الطالب ديزاد </a>
